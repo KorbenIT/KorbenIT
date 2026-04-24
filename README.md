@@ -71,4 +71,4 @@ just want a quick chat feel free to email me or message me on LinkedIn.
 ## Feel free to contact Me
 
 - Email: [korbenitgithub@gmail.com]
-- LinkedIn: https://www.linkedin.com/in/korben-bishop-438a35260/
+- [LinkedIn](https://www.linkedin.com/in/korben-bishop-438a35260/) – feel free to message 
